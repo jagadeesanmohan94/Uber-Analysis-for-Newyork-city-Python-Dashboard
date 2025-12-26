@@ -22,6 +22,8 @@ Evening peak: 17–21, strongest on Friday/Saturday
 
 Weekday segmentation confirms** Friday/Saturday dominance** and midweek softness.
 
+![Image](https://github.com/user-attachments/assets/8e5081d9-a311-4245-8956-cb921d8110d6)
+
 
 Recommendations (Actionable)
 
